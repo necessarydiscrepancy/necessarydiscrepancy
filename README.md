@@ -1,10 +1,12 @@
 <img src="https://files.catbox.moe/hcraaa.jpg" alt="image" align="left" width="230">
 
-salem or rem it/they 22 autistic
+salem or rem it/they 22
 
 whisper to interact I'm usually offtab and/or with friends i like to people watch
 
 my main interests rn are guilty gear, deltarune, deadlock, magical girl witch trials, animals, and the horror genre but i like a lot of things
+
+any interaction is fine but im socially anxious and autistic so if i dont talk a lot its not personal #sorry
 
 I LOVE MY FRIENDS!!!!!!!!!
 
