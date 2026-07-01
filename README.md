@@ -4,7 +4,7 @@ salem or rem it/they 22
 
 whisper to interact I'm usually offtab and/or with friends i like to people watch
 
-any interaction is fine but im socially anxious and autistic so if i dont talk a lot its not personal #sorry
+any interaction is fine but im socially anxious and autistic so if i dont talk a lot or bad at continuing convos its not personal #sorry
 
 <img src="https://files.catbox.moe/aaoes7.jpg" alt="image" align="center" width="300">
 
