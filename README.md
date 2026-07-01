@@ -4,7 +4,7 @@ salem or rem it/they 22 autistic
 
 whisper to interact I'm usually offtab and/or with friends i like to people watch
 
-my main interests rn are guilty gear, deltarune, deadlock, umamusume and the horror genre but i like a lot of things
+my main interests rn are guilty gear, deltarune, deadlock, magical girl witch trials, and the horror genre but i like a lot of things
 
 I LOVE MY FRIENDS!!!!!!!!!
 
