@@ -1,5 +1,4 @@
-![](https://files.catbox.moe/21lfcd.jpg){110px:110px}
-
+![]()
 salem or rem it/they 22
 
 whisper to interact I'm usually offtab and/or with friends 
