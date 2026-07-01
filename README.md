@@ -8,4 +8,4 @@ any interaction is fine but im socially anxious and autistic so if i dont talk a
 
 <img src="https://files.catbox.moe/aaoes7.jpg" alt="image" align="center" width="300">
 
-[strawpage](https://longnight.straw.page/)  [prns.cc](https://pronouns.cc/@GuiltyGear) [art credit](https://x.com/nisemayurikawai/status/2071169435885613174?s=20)
+[strawpage](https://longnight.straw.page/)  [prns.cc](https://pronouns.cc/@GuiltyGear) art credit: [1](https://x.com/nisemayurikawai/status/2071169435885613174?s=20) [2](https://www.tumblr.com/princyvish/811464072664088576/battew-tathew)
